@@ -1,1 +1,1 @@
-Hack The Planet with me!
+hack the planet!
